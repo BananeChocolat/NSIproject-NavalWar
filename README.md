@@ -6,5 +6,3 @@
 navale et qui la livre prête à jouer.*
 
 ![asuka en bateau](https://giffiles.alphacoders.com/112/112282.gif)
-
-> Diyan Gabriel, Jacques-Yonyul Aurélien, Haller-Dudick Thibault
